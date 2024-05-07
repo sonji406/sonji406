@@ -1,6 +1,6 @@
 
 ###
-![22c088e11f3afab2b6140a04e229311e-sticker](https://github.com/sonji406/sonji406/assets/133579214/d4f5ff34-3e7e-476b-a47b-f9386795b533)
+
 
 
 ![308440_front-end_html_long shadow_markup language_technologies_icon](https://github.com/sonji406/sonji406/assets/133579214/126045c6-0e43-4164-8876-23448ae27096)
